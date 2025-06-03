@@ -1,1 +1,0 @@
-[Code inséré précédemment, raccourci ici pour lisibilité]
